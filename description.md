@@ -1,3 +1,2 @@
-## Evan Misshula
-I am one of your instructors and I live in Coney Island.
-Here is a link to my picture [EM](/pictures/Evan_Misshula.jpg)
+## Shomari Thompson
+I live in NYC and love video games and sports. 
